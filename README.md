@@ -19,4 +19,4 @@ Hi, I'm A.Y. Finding my way, happy to connect with fellow learners!
 I’m always excited to chat with fellow learners, share resources, or collaborate on small projects. 
 Feel free to reach out:
 - [GitHub](https://github.com/yangling-happy)
-- [Email](yamber0302@qq.com) 
+- [Email](yangling_amber@163.com) 
