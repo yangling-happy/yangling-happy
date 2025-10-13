@@ -1,5 +1,4 @@
 ## Hi there 👋
-<hr>
 ![](https://visitor-badge.glitch.me/badge?page_id=yangling-happy.readme)
 Hi, I'm A.Y. Finding my way, happy to connect with fellow learners!  
 
